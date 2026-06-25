@@ -9,7 +9,7 @@ The **📸 Instagram Tools Followers** is the most powerful automation tool for 
 
 <div align="center">
 
-[![Download Instagram Tools Followers](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/instagram-tools-followers)
+[![Download Instagram Tools Followers](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/instagram-tools-followers)
 
 </div>
 
@@ -110,7 +110,7 @@ You need automation. Tools that work while you sleep.
 7. **⚙️ Configure Settings** — set targeting and limits
 8. **🚀 Start Campaign** — watch your account grow
 
-[![Download Instagram Tools Followers](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/instagram-tools-followers)
+[![Download Instagram Tools Followers](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/instagram-tools-followers)
 
 ### Follower Campaign Setup
 
@@ -218,7 +218,7 @@ Grow your Instagram without the daily grind. **Instagram Tools Followers** autom
 
 <div align="center">
 
-[![Download Instagram Tools Followers](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/instagram-tools-followers)
+[![Download Instagram Tools Followers](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/instagram-tools-followers)
 
 **Version 4.6.1** — Grow your Instagram. Free forever.
 
